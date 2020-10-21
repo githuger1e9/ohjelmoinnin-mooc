@@ -1,0 +1,1 @@
+Valittuja paloja omista ratkaisuista.
